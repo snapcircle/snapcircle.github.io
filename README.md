@@ -1,2 +1,2 @@
-# snapcircle.github.io
-snapcircle page
+# snapcircle
+coming soon..
